@@ -1,6 +1,4 @@
 # schule
-1.https://www.bing.com/ck/a?!&&p=53a5747fa22b1a7cbfd8663b3057157bb4cba08652fd65054343e1905c6525e1JmltdHM9MTc3Njk4ODgwMA&ptn=3&ver=2&hsh=4&fclid=324ef58d-22da-6d35-0b59-e04423166ca9&psq=KI+Gef%c3%a4hrlich+f%c3%bcr+Demokratie+%3f&u=a1aHR0cHM6Ly93d3cuZnIuZGUvbWVpbnVuZy9nYXN0YmVpdHJhZWdlL2tpLXJpc2lrZW4tZ2VmYWVocmRlbi1kZW1va3JhdGllbi11bmQtZGllLWludGVybmF0aW9uYWxlLXNpY2hlcmhlaXQtOTQyNjAxMjkuaHRtbA
-
 2.https://www.bing.com/ck/a?!&&p=a2ebee935e8c0999df6b5ecbd2e04da150aa95f7bd6f9d8c88d3b04c2feb3103JmltdHM9MTc3Njk4ODgwMA&ptn=3&ver=2&hsh=4&fclid=324ef58d-22da-6d35-0b59-e04423166ca9&psq=KI+Gef%c3%a4hrlich+f%c3%bcr+Demokratie+%3f&u=a1aHR0cHM6Ly93d3cuYnBiLmRlL3Nob3AvemVpdHNjaHJpZnRlbi9hcHV6L2t1ZW5zdGxpY2hlLWludGVsbGlnZW56LTIwMjMvNTQxNDk3L2tpLXVuZC1kZW1va3JhdGllLWVudHdpY2tsdW5nc3BmYWRlLw
 
 3.https://www.bing.com/ck/a?!&&p=11b66c0bfaada577b2de52ae91563e8d88f05a8fbf2ded2e818ef5cc05e7e8caJmltdHM9MTc3Njk4ODgwMA&ptn=3&ver=2&hsh=4&fclid=324ef58d-22da-6d35-0b59-e04423166ca9&psq=KI+Gef%c3%a4hrlich+f%c3%bcr+Demokratie+%3f&u=a1aHR0cHM6Ly93d3cuc2NpbmV4eC5kZS9uZXdzL3RlY2huaWsva2ktc2Nod2Flcm1lLW5ldWUtZ2VmYWhyLWZ1ZXItZGllLWRlbW9rcmF0aWUv
