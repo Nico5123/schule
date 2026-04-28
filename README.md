@@ -11,6 +11,6 @@
 
 7.https://www.bing.com/ck/a?!&&p=71b2320801d644f6a5b6a0bce0aa3291c1ff1ceb681a3c3fe5d1b6952ff24113JmltdHM9MTc3Njk4ODgwMA&ptn=3&ver=2&hsh=4&fclid=324ef58d-22da-6d35-0b59-e04423166ca9&psq=KI+Gef%c3%a4hrlich+f%c3%bcr+Demokratie+%3f&u=a1aHR0cHM6Ly93d3cubWluZC12ZXJzZS5kZS9uZXdzL3Jpc2lrZW4tY2hhbmNlbi1rdWVuc3RsaWNoZS1pbnRlbGxpZ2Vuei1kZW1va3JhdGllbg
 
-8.https://www.bing.com/ck/a?!&&p=946078502038dee898306f32fdec3e8f696f301748cfb14ca9ea1cc9c629fedbJmltdHM9MTc3NzMzNDQwMA&ptn=3&ver=2&hsh=4&fclid=324ef58d-22da-6d35-0b59-e04423166ca9&u=a1aHR0cHM6Ly93d3cudW5pc2cuY2gvZGUvbmV3c3Jvb20vdmVyYWVuZGVydC1rdWVuc3RsaWNoZS1pbnRlbGxpZ2Vuei1kaWUtZXJ3YXJ0dW5nZW4tYW4tcG9saXRpay11bmQtcmVnaWVydW5nLw&ntb=1
+8.https://www.fr.de/meinung/gastbeitraege/ki-risiken-gefaehrden-demokratien-und-die-internationale-sicherheit-94260129.html
 
 9.https://www.bing.com/ck/a?!&&p=2f9a400c88e85ff72303ced0091245327deb62d9494ceda23414b21738eef0d9JmltdHM9MTc3NzMzNDQwMA&ptn=3&ver=2&hsh=4&fclid=324ef58d-22da-6d35-0b59-e04423166ca9&u=a1aHR0cHM6Ly93d3cuaXBnLWpvdXJuYWwuZGUvcnVicmlrZW4vZGVtb2tyYXRpZS11bmQtZ2VzZWxsc2NoYWZ0L2FydGlrZWwvYW5ncmlmZi1hdWYtZGllLWRlbW9rcmF0aWUtODA4My8&ntb=1
